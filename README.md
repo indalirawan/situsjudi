@@ -1,0 +1,2 @@
+# situsjudi
+judi haram
